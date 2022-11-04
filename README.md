@@ -7,6 +7,7 @@ I will be adding more material as weeks go by. If you have any issues or questio
 TA: Sofia Ormazabal, you can call me "Zow".
 
 Email: d11949003@ntu.edu.tw
+
 LINE: zowlambda
 
 Office hours: by appointment. We can use Google Meets or meet on campus.
